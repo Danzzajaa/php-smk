@@ -1,1 +1,0 @@
-<h1>INI JURUSAN ESEMKA REPIT!!!!!!</h1>
